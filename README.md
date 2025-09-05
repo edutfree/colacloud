@@ -30,3 +30,10 @@
 详细套餐介绍参考下图表：
 
 [![可乐云(colacloud)套餐价格](colacloudnet_20250306_180103.png)](https://user.colacloudnet.com/#/register?code=puWPu829)
+
+2025-09-05：可乐云网络周期套餐加量不加价  🎉新老用户同享🎉
+
+* 标准版 100G  升级至 150G
+* 进阶版 200G 升级至 280G
+* 轻量版 350G 升级至 500G
+* 中量版 500G 升级至 700G
