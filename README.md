@@ -20,7 +20,9 @@
 
 ## 可乐云(colacloud)优惠码
 
-目前暂无优惠活动。
+2025国庆75折优惠券 全部产品可用
+
+优惠码：[20251001](https://merlin.colacloud.net/#/register?code=puWPu829)
 
 ## 可乐云(colacloud)特色
 
