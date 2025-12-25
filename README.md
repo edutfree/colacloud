@@ -20,9 +20,9 @@
 
 ## 可乐云(colacloud)优惠码
 
-2025国庆75折优惠券 全部产品可用
+2025圣诞&2026元旦 7.7折 全部产品可用
 
-优惠码：[20251001](https://merlin.colacloud.net/#/register?code=puWPu829)
+优惠码：[2025xmas](https://merlin.colacloud.net/#/register?code=puWPu829)
 
 ## 可乐云(colacloud)特色
 
