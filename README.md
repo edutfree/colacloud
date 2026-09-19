@@ -1,8 +1,8 @@
 # 可乐云(colacloud)官网地址
 
-永久官网：[colacloudnet.com](https://user.rsqpq.cn/#/register?code=puWPu829)
+永久官网：[www.colacloud.net](https://buzz.colacloudnet.com/#/register?code=puWPu829)
 
-备用地址：[colacloud.net](https://merlin.colacloud.net/#/register?code=puWPu829)
+备用地址：[colacloud.co](https://merlin.colacloud.net/#/register?code=puWPu829)
 
 ## 可乐云(colacloud)简介
 
@@ -27,11 +27,11 @@
 
 ￥25/月/100G流量起，年付价格更优惠。
 
-还有一个特色按量计费套餐：[¥58.00 /一次性150G](https://user.rsqpq.cn/#/register?code=puWPu829) 按量计费，永久有效流量用完即止。
+还有一个特色按量计费套餐：[¥58.00 /一次性150G](https://buzz.colacloudnet.com/#/register?code=puWPu829) 按量计费，永久有效流量用完即止。
 
 详细套餐介绍参考下图表：
 
-[![可乐云(colacloud)套餐价格](colacloudnet_20250306_180103.png)](https://user.rsqpq.cn/#/register?code=puWPu829)
+[![可乐云(colacloud)套餐价格](colacloudnet_20250306_180103.png)](https://buzz.colacloudnet.com//#/register?code=puWPu829)
 
 2025-09-05：可乐云网络周期套餐加量不加价  🎉新老用户同享🎉
 
